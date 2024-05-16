@@ -1,1 +1,1 @@
-# [照片](https://tonyzheng.github.io)
+# [照片](https://thinfi.com/0frzc)
