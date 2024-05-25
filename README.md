@@ -1,1 +1,1 @@
-# [照片](https://www.hoc4.org/Chinese/tony_test.html)
+# [照片](https://www.hoctoga.org/Chinese/tony_test.html)
