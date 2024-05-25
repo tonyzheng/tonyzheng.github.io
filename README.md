@@ -1,1 +1,1 @@
-# [照片](https://thinfi.com/0frzc)
+# [照片](https://www.hoc4.org/Chinese/tony_test.html)
