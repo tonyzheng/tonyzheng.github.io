@@ -1,4 +1,4 @@
-# [照片](https://1drv.ms/f/s!Aufy3l-3PSKMmyGQ_BNAWNXGy2sw?e=f9LQ44) 
+<!-- # [照片](https://1drv.ms/f/s!Aufy3l-3PSKMmyGQ_BNAWNXGy2sw?e=f9LQ4 4)  -->
 # [1. Solitaire 单人纸牌接龙(游戏）](https://worldofsolitaire.com/)
 # [2. Tetris 俄羅斯方塊(游戏）](https://tetrisgeek.com/)
 # [3. 演示](https://meetings.dialpad.com/room/sh5633212)
